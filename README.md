@@ -1,1 +1,0 @@
-# koknurs_mob
